@@ -1,0 +1,1 @@
+### Bu sifatli dastur
